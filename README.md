@@ -1,0 +1,2 @@
+# buatbociltobrutsilumanaduhay
+INI UCAPANN MALAIKAT
